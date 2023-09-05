@@ -5,6 +5,7 @@ This great initiative is happening this Saturday in Edinburgh, peeps from around
 What and why: Supporting the main “PAIN” event, Saturday 9th September, 14h00 GMT (15h00 SAST). The PAIN event itself is a 31km run in aid of mental health, put together by a small group of legends in Edinburgh who started _Smls_. _Smls_ aims to reduce the numbers of suicides by helping to fund quality counselling sessions for those who desperately need it, while also improving awareness. While they will be running 31km, you can participate in any form (if running is not your thing, and you'd like to join by bike or any other mode, feel free) or distance (not necessarily 31km).
 
 https://www.instagram.com/p/CwPPnM4IwcN
+
 https://www.justgiving.com/page/smls-presents-pain-1687934621674 
 
 How _you_ could contribute: Take part wherever you are and however you can, then post your activity to your socials, *tagging @smlsgoods and using #charliesloop* - this will enable us to gain more awareness through each and every one of your actions, thank you! 
