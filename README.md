@@ -1,4 +1,4 @@
-# PAIN event - 9th Sepetember 2023 15h00 SAST
+# PAIN event - 9th September 2023 15h00 SAST
 
 This great initiative is happening this Saturday in Edinburgh, peeps from around the world are able to contribute to the cause, check it out!:
 
